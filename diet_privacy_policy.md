@@ -1,6 +1,6 @@
 Privacy Policy
 
-Diet & Fat APP Last Updated: July 1, 2026
+Diet & Fat APP Last Updated: July 01, 2026
 
 Thank you for using our application.
 
