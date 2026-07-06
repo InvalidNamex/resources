@@ -1,6 +1,6 @@
 Privacy Policy
 
-Cajo APP Last Updated: June 30, 2026
+Cajo APP Last Updated: June 1, 2026
 
 Thank you for using our application.
 
