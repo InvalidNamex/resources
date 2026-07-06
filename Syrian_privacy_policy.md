@@ -1,5 +1,5 @@
 Privacy Policy
-Syrian Moon APP Last Updated: June 30, 2026
+Syrian Moon APP Last Updated: June 1, 2026
 
 Thank you for using our application.
 
